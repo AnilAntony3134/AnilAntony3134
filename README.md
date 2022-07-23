@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anilantony3134@gmail.com**
 
-- ⚡ Fun fact **I think I am funny and love making cinematic videos**
+- ⚡ Fun fact **I think I am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
